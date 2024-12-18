@@ -33,7 +33,7 @@ AI Solution Architect and Scientist passionate about pushing the boundaries of w
 
 ## 📫 Connect With Me
 - LinkedIn: [Brett Kettler](https://www.linkedin.com/in/brett-kettler-08724570)
-- Email: brettmkettler@icloud.com
+- Email: brettkettler23@gmail.com
 
 ---
 *"Building the future of AI, one agent at a time."*
